@@ -1,5 +1,4 @@
 # **Ekaterina Gurianova**
-
 ## My Contact Info:
 * Phone: +1 (506) 238-8464
 * E-mail: gurianova.katrin@gmail.com
